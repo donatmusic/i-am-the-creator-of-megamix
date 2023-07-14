@@ -1,2 +1,2 @@
-# i-am-the-creator-of-megamix
-I MADE IT. ALL 35 OF IT
+# the NEW MEGA MIX!
+THIS IS THE GOOD ONE! I SWEAR
